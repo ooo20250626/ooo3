@@ -31,7 +31,7 @@
 
 点击访问：<a href="https://hl388.pages.dev/">黑料不打烊</a>
 
-点击访问：<a href="https://hl442.pages.dev/">国内吃瓜爆料黑料社曝门</a>
+点击访问：<a href="https://hl440.pages.dev/">每日分享最新黑料吃瓜资源</a>
 
 点击访问：<a href="https://hl441.pages.dev/">51 黑料社红黑料门</a>
 
